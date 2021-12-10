@@ -6,7 +6,7 @@ Menu Peds en Full RageUI - Complet + Systeme VIP (Steam Hex)
 
 🔗Social Medias
 ---------------------------------------------
-5% Leaks and Dev ➜ discord.gg/wuHPzTjwmB
+5% Leaks and Dev ➜ https://discord.gg/8akQqxUMtq
 
 📌Credits
 ----------------------------------------------
